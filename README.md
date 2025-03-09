@@ -5,4 +5,4 @@
 - 📫 How to reach me: You can find me at son.nl215131@gmail.com or [My Social Media](https://www.facebook.com/son.nguyenle.560/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love coding more than Doraemon loves Dorayaki! 
-- ⚡ Fun fact 2: You might find me at a cosplay event sometime (⁠~⁠‾⁠▿⁠‾⁠)⁠~⁠
+- ⚡ Fun fact 2: You might find me at a cosplay event sometime (⁠\~⁠‾⁠▿⁠‾⁠)⁠\~⁠
